@@ -58,6 +58,6 @@ So this letter would probally not convice you guys to unban me I know.
 
 But hopefully it shows I am willing to approach the matter. 
 
-I will add Gnawg to my discord friendslist because its common knowledge you can not communicat with eachother if you are not on the same server. 
+I will add Gnawg to my discord friendslist because its common knowledge you can not communicate with eachother if you are not on the same server. 
 
 Happy chrismass and the best for the new year ahead. 
