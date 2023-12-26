@@ -1,7 +1,9 @@
 GoodMorning / Afternoon / Evening. 
 
 Please read the whole post before judging
+
 It has been a while now since I have been banned. Since about 6th of december.
+
 I asked a few people why and what I did but I dont understanded it at that moment. Sadly I did not get a lot of perspectives that could reforge my way of thinking / adjust my personal approach so I have to do it on my own with the little information I have.  
 
 Seeing I got banned. I did something way of key and I cant like run in and ask about a unban.I need to think about it with little information that I have.
